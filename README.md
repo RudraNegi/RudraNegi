@@ -25,6 +25,3 @@ Notebook LM
 ## Contact
 [Rudanegi237@outlook.com](Rudranegi237@outlook.com)
 [LinkedIn](https://www.linkedin.com/in/rudra-lakshman-negi-0a79b5382/)
-## Fun Fact
-1. I can't tolerate 50 ml of coffee, but can tolerate 500ml Monster.
-2. I love cats.
